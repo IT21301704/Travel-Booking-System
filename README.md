@@ -13,5 +13,5 @@ Travel management systems can provide several benefits to individuals or organiz
 4. Tharaki D.H.D         IT21254970       +94 77 276 7876    it21254970@my.sliit.lk
 5. Kumarasinghe O.A      IT21174308       +94 75 710 7968    it21174308@my.sliit.lk
 6. Siriwardana K.D.S.P   IT21293894       +94 71 088 8133    it21293894@my.sliit.lk
-7. Prasadi P.G.K.        IT21302626       +94 70 594 5095    it21302626@my.sliit.lk
+7. Prasadi P.G.K.R        IT21302626       +94 70 594 5095    it21302626@my.sliit.lk
 8. Weerasinghe N.S.I     IT21024672       +94 70 214 0856    it21024672@my.sliit.lk
